@@ -37,4 +37,4 @@ Any and all contributions, issues, features and tips are welcome.
 
 ### Contact
 
-All the links to reach me out is given here  :: www.prateek-mishra.com
+All the links to reach me out is given here  :: www.chandanjha.tk
